@@ -1,2 +1,0 @@
-# portfolio-ludvin
-portfolio-ludvin
